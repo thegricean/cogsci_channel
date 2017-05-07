@@ -60,4 +60,4 @@ All kinds of biases! Make sure to always include discussion of why these are **u
 
 ### Evolution
 
-- what makes a (wo)man a (wo)man -- and how it relates to non-binary gender?
+- what makes people attractive
